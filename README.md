@@ -47,8 +47,6 @@ FEATURES:
 
 ![](https://scontent-lga.xx.fbcdn.net/hphotos-xpf1/v/t1.0-9/10625145_1537685353132894_2289790043201480585_n.png?oh=2bbb4282508d116a5a111ada5c2fce8f&oe=5590B6A2)
 
-
-
 ![](https://scontent-lga.xx.fbcdn.net/hphotos-xfa1/v/t1.0-9/1476230_1537685383132891_3343920292521564242_n.png?oh=d9b517b28fbd18e1ab9421591f684fd9&oe=5594B3C3)
 
 
